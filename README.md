@@ -1,0 +1,7 @@
+-🖐 Hello guys I'm @Anewcoder1727.
+-😍 I am interested in programming.
+-📬 My email: nishantragavs17@gmail.com.
+-😎 Fun fact: I am just a beginner to coding.
+-😊 Pronouns: He/Him.
+-😃 I know basics of HTML & C.
+-👤 My friend who is good at coding @ProCoder1199X
